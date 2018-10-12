@@ -3,7 +3,7 @@
 Priceless Relics of the Spanish Armada
 ======================================
 
-###**by Robert Sténuit**
+### **by Robert Sténuit**
 
 *Illustrations by National Geographic*
 
